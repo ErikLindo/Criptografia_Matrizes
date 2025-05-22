@@ -1,1 +1,1 @@
-Participantes:Erik, Geraldo, Lucas Delfino e Vitor Barbosa.
+Participantes: Erik, Geraldo, Lucas Delfino e Vitor Barbosa.
